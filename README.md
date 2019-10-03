@@ -1,1 +1,0 @@
-# ishulgan.github.io
